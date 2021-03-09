@@ -1,1 +1,3 @@
-# summer-training-indian-eastern-railway
+# Summer-Training-from-Eastern-Railway
+
+<img src="crtificate-of-training.jpg">
